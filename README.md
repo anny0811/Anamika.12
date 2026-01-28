@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anamika.anny0811@gmail.com**
 
-- ⚡ Fun fact **I am garrulous person.**
+- ⚡ Fun fact **I'm garrulous person.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
