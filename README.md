@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [www.linkedin.com/in/anamika-b99633331](www.linkedin.com/in/anamika-b99633331)
 
-- 📫 How to reach me **24f3001640@ds.study.iitm.ac.in**
+- 📫 How to reach me **anamika.anny0811@gmail.com**
 
 - ⚡ Fun fact **I am garrulous person.**
 
